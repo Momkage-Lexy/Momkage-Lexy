@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Momkage-Lexy
-- 👀 I’m interested in UX/UI, Front End Development, and Cyber Security
-- 🌱 I’m currently learning how to be a hot, rich, coder-girl 
+- 👀 I’m interested in UX/UI and Front End Development
+- 🌱 I’m currently learning how to survive a hostile takeover
 - 💞️ I’m looking to collaborate on nothing, leave me alone
 - 📫 How to reach me: Lexy.b.quijano@gmail.com
 - 😄 Pronouns: She/Her/Hers
